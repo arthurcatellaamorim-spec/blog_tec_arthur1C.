@@ -1,0 +1,1 @@
+# blog_tec_arthur1C.
